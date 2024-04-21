@@ -1,9 +1,7 @@
-![Photo Modaern New Collection Banner](https://github.com/FakeUlysses22/FakeUlysses22/assets/138157716/479f6ec2-4124-4bec-a032-9c37ad4187c2)
+![Photo Modaern New Collection Banner]([https://github.com/FakeUlysses22/FakeUlysses22/assets/138157716/479f6ec2-4124-4bec-a032-9c37ad4187c2](https://i.ibb.co/7XFP3pJ/Captura-de-pantalla-de-2024-04-20-22-09-49.png"))
 
 <h1 align="center">𝐔𝐬𝐞𝐫 𝐝𝐞𝐥 𝐒𝐚𝐧𝐭𝐨 𝐍𝐨𝐦𝐛𝐫𝐞 𝐝𝐞 𝐥𝐚 𝐃𝐞𝐜𝐚𝐝𝐞𝐧𝐜𝐢𝐚</h1>
 <h3 align="center">"𝐓𝐡𝐞 𝐓𝐢𝐦𝐞 𝐟𝐨𝐫 𝐭𝐚𝐥𝐤 𝐡𝐚𝐬 𝐩𝐚𝐬𝐬𝐞𝐝, 𝐭𝐡𝐞 𝐋𝐨𝐫𝐝𝐬 𝐰𝐨𝐫𝐤 𝐦𝐮𝐬𝐭 𝐛𝐞 𝐝𝐨𝐧𝐞"</h3>
-
-<p align="left"> <img src="https://i.ibb.co/7XFP3pJ/Captura-de-pantalla-de-2024-04-20-22-09-49.png" alt="fakeulysses22" /> </p>
 
 <h3 align="left">Contacto:Soportebd5574@protonmail.com</h3>
 
