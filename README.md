@@ -4,7 +4,7 @@
 <h1 align="center">𝐔𝐬𝐞𝐫 𝐝𝐞𝐥 𝐒𝐚𝐧𝐭𝐨 𝐍𝐨𝐦𝐛𝐫𝐞 𝐝𝐞 𝐥𝐚 𝐃𝐞𝐜𝐚𝐝𝐞𝐧𝐜𝐢𝐚</h1>
 <h3 align="center">"𝐓𝐡𝐞 𝐓𝐢𝐦𝐞 𝐟𝐨𝐫 𝐭𝐚𝐥𝐤 𝐡𝐚𝐬 𝐩𝐚𝐬𝐬𝐞𝐝, 𝐭𝐡𝐞 𝐋𝐨𝐫𝐝𝐬 𝐰𝐨𝐫𝐤 𝐦𝐮𝐬𝐭 𝐛𝐞 𝐝𝐨𝐧𝐞"</h3>
 
-<h3 align="left">Contacto:Soportebd5574@protonmail.com</h3>
+
 
 <h3 align="left">(https://fakeulysses22.github.io/Personal-Index/)</h3>
 <p align="left">
