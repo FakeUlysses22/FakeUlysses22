@@ -1,4 +1,4 @@
-<p><img align="left" src="https://i.ibb.co/7XFP3pJ/Captura-de-pantalla-de-2024-04-20-22-09-49.png" alt="fakeulysses22" BORDER=10/></p>
+<p><img align="left" src="https://ibb.co/6FWcwZv" alt="fakeulysses22" BORDER=10/></p>
 
 
 <h1 align="center">𝐔𝐬𝐞𝐫 𝐝𝐞𝐥 𝐒𝐚𝐧𝐭𝐨 𝐍𝐨𝐦𝐛𝐫𝐞 𝐝𝐞 𝐥𝐚 𝐃𝐞𝐜𝐚𝐝𝐞𝐧𝐜𝐢𝐚</h1>
