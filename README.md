@@ -7,7 +7,7 @@
 
 
 
-<h3 align="left">(https://fakeulysses22.github.io/Personal-Index/](https://fakeulysses22.github.io/Index-Personal/)</h3>
+<h3 align="left">https://fakeulysses22.github.io/Index-Personal/</h3>
 <p align="left">
 </p>
 
