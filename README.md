@@ -5,6 +5,12 @@
 <h1 align="center">𝐔𝐬𝐞𝐫 𝐝𝐞𝐥 𝐒𝐚𝐧𝐭𝐨 𝐍𝐨𝐦𝐛𝐫𝐞 𝐝𝐞 𝐥𝐚 𝐃𝐞𝐜𝐚𝐝𝐞𝐧𝐜𝐢𝐚</h1>
 <h3 align="center">"𝐓𝐡𝐞 𝐓𝐢𝐦𝐞 𝐟𝐨𝐫 𝐭𝐚𝐥𝐤 𝐡𝐚𝐬 𝐩𝐚𝐬𝐬𝐞𝐝, 𝐭𝐡𝐞 𝐋𝐨𝐫𝐝𝐬 𝐰𝐨𝐫𝐤 𝐦𝐮𝐬𝐭 𝐛𝐞 𝐝𝐨𝐧𝐞"</h3>
 
+🛠 Estudiante Ingeniería.
+
+📊 Interés en IA, matemáticas aplicadas y ciencia de datos.
+
+💻Apasionado por la tecnología y la resolución de problemas.
+
 
 
 <h3 align="left">Languages and Tools:</h3>
