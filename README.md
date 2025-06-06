@@ -11,6 +11,7 @@
 
 💻Apasionado por la tecnología y la resolución de problemas.
 
+🛠 Python | C++ | C | Gnu/Linux | SQL | LaTeX
 
 
 <h3 align="left">Languages and Tools:</h3>
