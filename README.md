@@ -78,7 +78,7 @@
 
 ## 🌸 終章 — Epílogo
 
-> *“Aprende del ayer, vive el hoy, espera el mañana..”*
+> *“明日を楽しみにしましょう”*
 
 
 
