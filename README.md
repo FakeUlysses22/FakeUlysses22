@@ -17,7 +17,7 @@
 ## 🗻 私について — Sobre mí
 
 
-- 🛕 Estudiante de Ingeniería, escribo Bash como haiku.
+- 🛕 Estudiante de Ingeniería.
 - 📊 Interés en IA, matemáticas aplicadas y ciencia de datos.
 - 💻Apasionado por la tecnología y la resolución de problemas.
 - 📚 🛠 Python | C++ | C | Gnu/Linux | SQL | LaTeX
